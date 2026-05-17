@@ -1,5 +1,5 @@
 # 💫 About Me:
-passionate Full Stack AI Engineer<br>Learning RAG, LLM, DL
+Currently working as Web developer Intern in InAmigos Foundation<br>Aspiring AI Engineer
 
 
 ## 🌐 Socials:
