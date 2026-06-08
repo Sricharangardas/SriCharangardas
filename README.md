@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working as Web developer Intern in InAmigos Foundation<br>Aspiring AI Engineer
+EX Intern at InAmigos Foundation<br>Aspiring AI Engineer
 
 
 ## 🌐 Socials:
