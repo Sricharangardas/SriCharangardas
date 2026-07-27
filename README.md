@@ -1,5 +1,5 @@
 # 💫 About Me:
-EX Intern at InAmigos Foundation<br>Aspiring AI Engineer
+Currently working as AI ML Intern @AidenAI Technologies<br>Aspiring AI Engineer
 
 
 ## 🌐 Socials:
